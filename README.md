@@ -1,5 +1,5 @@
 
-![image](https://github.com/maduzan/maduzan/assets/106295341/d97dce90-d54f-4053-8352-afe4deed22f0)
+![image](https://solguruz.com/wp-content/uploads/2023/11/Flutter-App-Development-Cost-A-Complete-Guide.png)
 
 
 
